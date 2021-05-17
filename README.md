@@ -9,4 +9,5 @@ You can alternatively launch it also from there.
 
 For further instructions check out my YouTube video (may not be online yet)
 
-Have fun trolling people
+Note that im NOT responsible for any damage you do to people!
+This is for education ONLY.
